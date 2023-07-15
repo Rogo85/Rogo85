@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rogo85
-- 👀 I’m interested in ... global payments, Brain waves, and Halluce*#$*
+- 👀 I’m interested in ... global payments, Brain waves. 
 - 🌱 I’m currently learning ... BGI
 - 💞️ I’m looking to collaborate on ... music 
 - 📫 How to reach me ... in the matrix. 
